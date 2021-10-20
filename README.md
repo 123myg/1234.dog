@@ -1,10 +1,16 @@
-# 1234.dog
-Shadowrocket，Quantumult X，圈X，小火箭最新版在线安装，共享Shadowrocket 小火箭账号，iPhone，IOS，苹果手机SS/SSR/V2Ray客户端
+# 关于Apple ID及App使用说明
 
-#### 【1】[Shadowrocket成品号购买](https://1234.dog/buy/1)
+**此页面为教程，请根据您的设备查看相应教程。**
 
-#### 【2】[Quantumult X成品号购买](https://1234.dog/buy/6)
+遇到问题请联系TG客服
 
-#### 【3】[Apple ID（美/日）购买](https://1234.dog)
+在线商城：[https://1234.dog](https://1234.dog)
 
-#### 【4】[Apple ID及相关软件教程](https://123mgy.gitbook.io/doc)
+机场节点：[https://1mgy.com](https://1mgy.com)
+
+T G 客服：[https://t.me/mogu\_cloud](https://t.me/mogu\_cloud)
+
+*
+
+
+
