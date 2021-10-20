@@ -1,5 +1,7 @@
 # 关于Apple ID及App使用说明
 
+Shadowrocket，Quantumult X，圈X，小火箭最新版在线安装，共享Shadowrocket 小火箭账号，iPhone，IOS，苹果手机SS/SSR/V2Ray客户端
+
 **此页面为教程，请根据您的设备查看相应教程。**
 
 遇到问题请联系TG客服
